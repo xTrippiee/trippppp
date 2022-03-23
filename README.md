@@ -1,1 +1,1 @@
-https://svgshare.com/s/fYL
+https://svgshare.com/i/fYL.svg
